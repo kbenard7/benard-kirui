@@ -1,2 +1,2 @@
-# brianmwevi.github.io
+# benardkirui.github.io
 My portfolio
